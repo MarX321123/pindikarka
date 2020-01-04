@@ -1,0 +1,2 @@
+# pindikarka
+borec janda jenda
